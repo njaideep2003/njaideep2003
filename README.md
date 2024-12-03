@@ -1,3 +1,6 @@
+
+![](https://komarev.com/ghpvc/?username=njaideep2003&color=green)
+
 - 👋 Hi, I’m Jaideep Nutalapati
 - 😄 Pronouns: He/Him/His
 - 👀 I’m very interested in learning new things. My interests include Programming, Geography, Science, Cars and Bikes, Politics. 
