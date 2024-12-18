@@ -10,6 +10,7 @@
  - Email: jnuta@uic.edu
  - Personal Email: nutalapatijaideep18@gmail.com
  - Linkedin: https://www.linkedin.com/in/nutalapati-jaideep
+ - My Portfolio: https://sites.google.com/view/jaideep-nutalapati
 
 
 
